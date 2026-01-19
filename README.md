@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 I’m currently pursuing B.Tech in Computer Science<br>🤝 I am looking to collaborate on Development<br>❓ Ask me about anything regarding Development<br>🔗 LinkedIn: [http://www.linkedin.com/in/suhani-a20524346/](http://www.linkedin.com/in/suhani-a20524346/)<br>✉️ How to reach me: [ruchisuhani244@gmail.com](mailto:ruchisuhani244@gmail.com)<br>🧠 Fun fact: I can solve Rubik’s cube in 45 seconds<br>
+🎓 I’m currently pursuing B.Tech in Computer Science<br>🤝 I am looking to collaborate on Development<br>❓ Ask me about anything regarding Development<br>🔗 You can connect me on LinkedIn: [http://www.linkedin.com/in/suhani-a20524346/](http://www.linkedin.com/in/suhani-a20524346/)<br>✉️ How to reach me: [ruchisuhani244@gmail.com](mailto:ruchisuhani244@gmail.com)<br>🧠 Fun fact: I can solve Rubik’s cube in 45 seconds<br>
 
 
 ## 🌐 Socials:
